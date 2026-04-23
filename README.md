@@ -1,2 +1,1 @@
-# Encrypt-file-
-Tool for file encryption with a combination of ROT 13, Hex code, and emoji encoding
+lu kalau mau skid disini mati aja dah, decode dulu sana. palingan yang gak script kiddie yang bisa decode 😂
