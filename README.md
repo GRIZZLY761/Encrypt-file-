@@ -1,1 +1,1 @@
-lu kalau mau skid disini mati aja dah, decode dulu sana. palingan yang gak script kiddie yang bisa decode 😂
+script kiddie ampos mau recode tapi gak bisa decode😂
